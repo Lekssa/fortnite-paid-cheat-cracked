@@ -1,17 +1,9 @@
-# fortnite-paid-cheat-cracked
-Paid Fortnite Cheat Crack
+# hyperion.lol-spoofer
 
-This is a paid fortnite cheat that has been cracked. It has:
+Hyperion.lol Spoofer Discord: https://discord.gg/dH3KjwS5Rx
 
-Spinbot
-Aimbot
-Silent Aim
-FOV Changer
-+ More
+About Hyperion.lol:
 
-------
+Hyperion.lol is a spoofer that works with the hyperion anti cheat, it also works with be + eac. I have researched the methods that the Hyperion anti cheat uses and have created a spoofer that spoofs your pc to fool the anticheat.
 
-How to use: 
-Open the loader, when it asks for a key type: 1cvad
-Then open fortnite
-Press F2 in lobby
+We will be doing cheats aswell soon so join quick.
